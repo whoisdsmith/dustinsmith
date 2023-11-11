@@ -1,0 +1,278 @@
+# VFI-Tour
+
+---
+
+## Upcoming Shows
+
+![[2008-07-15-060000.jpeg]]
+
+### 2008-07-15-08:00-PM
+
+	2008-07-15   08:00 PM    Mayfield, Kentucky
+	
+	Fathers Lock Up Your Daughters Tour! @The Blue Building w/ My Friend The Ghost
+
+### 2008-07-16-08:00-PM
+
+	2008-07-16    08:00 PM    Nashville, Tennessee
+	
+	Fathers Lock Up Your Daughters Tour!
+
+### 2008-07-17-08:00-PM
+
+	2008-07-17   08:00 PM   Lake Villa, Illinois
+	
+	Fathers Lock Up Your Daughters Tour! @ The Swing State
+
+### 2008-07-18-10:00-AM
+
+	2008-07-18   10:00 AM    Comerica Park, Detroit, MI
+	
+	Warped Tour on the Ernie Ball Stage!!!!
+
+### 2008-07-19-08:00-PM
+
+	2008-07-19    08:00 PM    Milford, Michigan
+	
+	Fathers Lock Up Your Daughters Tour!
+	
+	@Tori's Graduation Bash
+
+### 2008-07-20-08:00 PM
+
+	2008-07-20    08:00 PM    TBA.
+	
+	
+	Fathers Lock Up Your Daughters Tour!
+
+### 2008-08-30-05:00-PM
+
+	2008-08-30    05:00 PM    Lansing, Michigan
+	
+	Mac's Bar w/ 1997 & National Product
+
+---
+
+# 2008
+
+[[2008-07-15-080000]]
+
+[[2008-07-16-080000]]
+
+[[2008-07-17-080000]]
+
+[[2008-07-18-100000]]
+
+[[2008-07-19-080000]]
+
+[[2008-07-20-080000]]
+
+[[2008-08-30-050000]]
+
+---
+
+# Warped Tour 2008
+
+## Ernie Ball Battle of the Bands 12 Winners
+
+- 3AM(Played 6/29)
+- 5 Second Rule(Played 8/16)
+- 12 Summers Old(Played 7/1)
+- A Bird a Sparrow(Played 7/3)
+- A Farewell Rescue(Played 7/27)
+- A Golden Era(Played 7/27)
+- A Hope for Home(Played 8/10)
+- A NewBorn Thriller(Played 7/15)
+- Above All Else (Played 7/20)
+- Action Item(Played 7/28)
+- Adalie(Played 7/25)
+- All That's Left(Played 8/10)
+- Aloretta!(Played 7/14)
+- The Alumni Club(Played 8/1)
+- Amaradio(Played 6/20)
+- The Amend(Played 7/9)
+- Ameratta(Played 8/9)
+- Amity (Played 8/6)
+- And Then There Was You(Played 7/12)
+- The Arma Mirage(Played 7/6)
+- Asiago(Played 8/13)
+- Backseat LoveStory(Played 7/29)
+- Behold the Flood(Played 7/16)
+- Beyond the Citadel of Coup de Grace(Played 6/25)
+- Box the Stars(Played 7/17)
+- The Boy and His Machine(Played 7/24)
+- Bravo Romeo Bravo(Played 7/16)
+- Bring it Home(Played 6/21)
+- Burning Tree(Played 7/11)
+- Callahan(Played 7/30)
+- Casari(Played 7/26)
+- Chances Are High(Played 7/29)
+- Chasing Thrill(Played 7/10)
+- Chelsea Grin(Played 6/28)
+- Cipes & The People(Played 6/22)
+- Code Anchor(Played 7/26)
+- Cold War Veterans(Played 8/8)
+- The Coming Weak(Played 7/20)
+- Crookedhook(Played 7/19)
+- Cry to the Blind(Played 7/24)
+- Culdera(Played 7/15)
+- Days Off Screen(Played 7/14)
+- Del Asher(Played 7/19)
+- Demi the Daredevil(Played 6/26)
+- The Dialed(Played 8/15)
+- Dice in the Icebox(Played 8/15)
+- Dirty Rooster Lollipops(Played 8/8)
+- Down for the Count (Played 6/20)
+- Dressed to Kill(Played 8/9)
+- Dust & Blood(Played 6/25)
+- The Embraced(Played 7/13)
+- Echoes of Us(Played 7/16)
+- Emery Drive(Played 7/6)
+- The Epilogues(Played 6/29)
+- The Eternal Affect(Played 7/28)
+- The Evermore Escape(Played 8/3)
+- Eyes on the Prize(Played 7/25)
+- The Failsafe(Played 7/29)
+- Farwell(Played 7/18)
+- The Fast Track(Played 8/3)
+- Fighting the Villain(Played 6/21)
+- Fire at Will(Played 7/10)
+- First Class Fever(Played 7/3)
+- For All Those Sleeping(Played 8/3)
+- For Word Cause(Played 7/2)
+- For Yesterday(Played 6/21)
+- FreaknMissy(Played 6/22)
+- From Man in Ghost(Played 7/19)
+- Furthest from the Star(Played 7/5)
+- Gentlemen Prefer Blondes(Played 8/6)
+- Girl on Fire(Played 8/10)
+- Go Radio(Played 7/13)
+- Godzilla(Played 6/20)
+- Gonna Get Got(Played 7/26)
+- The Great Escape(Played 7/16)
+- H is For Hero(Played 7/15)
+- Hail Archer(Played 8/1)
+- Hedged(Played 8/5)
+- Hello Marquee(Played 8/14)
+- Her Fatal Flaw(Played 6/25)
+- Here's Looking At You Kid(Played 7/14)
+- Honest to Empire(Played 8/10)
+- Honor Bright(Played 7/24)
+- Honorthefallen(Played 6/28)
+- Idea of Beauty(Played 7/9)
+- In the Wake(Played 7/29)
+- In Times of Distress(Played 8/13)
+- Indosurf(Played 8/13)
+- Innocence Betrays(Played 8/8)
+- Jacob's Ladder(Played 7/12)
+- Jay and the Lovebirds(Played 8/6)
+- The Jealousy Game(Played 7/14)
+- Kevin Goes 2 College(Played 7/5)
+- Kill a Mockingbird(Played 8/17)
+- La Circa(Played 6/21)
+- Langus(Played 7/30)
+- Larusso(Played 6/28)
+- Last Try(Played 7/25)
+- The Lasting Effect(Played 6/29)
+- Legacy Falls(Played 7/6)
+- Let Lions(Played 7/2)
+- Letters Burning(Played 6/22)
+- Life Between Sleep(Played 7/26)
+- Lone Star Drive By(Played 7/5)
+- Loren Battle(Played 6/26)
+- Lost Deliveries(Played 7/20)
+- Lost in Prague(Played 8/3)
+- Love Me Electric (Played 8/2)
+- Love You Long Time(Played 8/17)
+- Lovers Make Liars(Played 8/17)
+- Madison Drive(Played 8/9)
+- The Malheruex(Played 6/20)
+- Mankind Is Obsolete(Played 8/9)
+- MARADONA(Played 7/13)
+- Melodramus(Played 6/28)
+- Mercury Bullet(Played 8/13)
+- The Mission Veo(Played 7/12)
+- Moments of Brilliance(Played 8/5)
+- Mondays Alibi(Played 8/14)
+- My Last Entry(Played 7/3)
+- Nine Life Fire(Played 7/1)
+- The Nominees Are(Played 8/2)
+- Novella(Played 7/1)
+- Novista(Played 7/6)
+- One Star City(Played 8/6)
+- Oregon Falls(Played 8/1)
+- Our Film Star(Played 7/18)
+- The Perfect Mistake(Played 7/28)
+- Perfect on Paper(Played 6/26)
+- Poetica(Played 6/28)
+- Pomeroy(Played 7/2)
+- Porcelain Smile(Played 7/15)
+- Prom Night in Black and White(Played 8/5)
+- Promise Me Scarlet(Played 7/17)
+- The Prospect(Played 7/11)
+- Red Car Wire (Played 7/3)
+- Red October(Played 7/20)
+- Relapse(Played 8/15)
+- Remember Tomorrow(Played 7/24)
+- Rising 4(Played 8/5)
+- The Riot(Played 7/27)
+- The Rival Year(Played 7/12)
+- The Rooftops(Played 7/27)
+- Say Goodbye(Played 7/1)
+- The Scenic(Played 7/25)
+- Seasons After(Played 7/2)
+- The Shoreline(Played 7/10)
+- Shotgun Rules(Played 7/19)
+- Silas(Played 7/11)
+- Silence of a Silhouette(Played 7/17)
+- Silence the Messenger(Played 7/3)
+- Silent Soul(Played 7/20)
+- Snake Eater(Played 7/2)
+- Some Never Sleep(Played 6/25)
+- Something for Nothing(Played 7/23)
+- Sounds of Surrender(Played 8/14)
+- Stages and Stereos(Played 7/13)
+- The State Affair(Played 8/2)
+- Stay(Played 7/23)
+- Storms in May(Played 7/18)
+- The Story Changes(Played 7/30)
+- Streets of Rage(Played 6/20)
+- T13C(Played 7/10)
+- Terra Terra Terra(Played 7/11)
+- Thanks to You(Played 6/29)
+- Tigers in Transit(Played 6/22)
+- Tinj(Played 7/3)
+- To Sleep With Angels(Played 8/8)
+- Tonight the Prom(Played 8/2)
+- Tragedy of Me(Played 6/26)
+- Transmit Now(Played 7/10)
+- Transit Studio(Played 8/17)
+- Tropidelic(Played 7/17)
+- Undefyed(Played 7/23)
+- Undergone(Played 8/15)
+- Van Atta High(Played 7/28)
+- Veramadia(Played 7/6)
+- Vices I Admire(Played 6/29)
+- [[View From Ida](../../../..//Project%20Database/Project-Audio/View-From-Ida/View%20From%20Ida.md)(Played 7/18)
+- Vonnegutt (Played 7/9)
+- Wayward(Played 8/16)
+- We Spell Disaster(Played 6/22)
+- We're Not Friends Anymore(Played 8/16)
+- Westside Story(Played 8/14)
+- Winner Takes All(Played 8/1)
+- With Grace We Fall(Played 8/16)
+- With Honors(Played 7/31)
+- Where Truth Lies(Played 8/17)
+- Your Greatest Mistake(Played 7/5)
+
+---
+
+#Viewfromida  
+#Project-Audio  
+#Bands
+
+***
+
+[A-Look-Back-At-Warped-Tour-008](a-look-back-at-warped-tour-008.md)  
+[Vfi-Tour](vfi-tour.md)  
+[Warped-Tour-008](warped-tour-008.md)
